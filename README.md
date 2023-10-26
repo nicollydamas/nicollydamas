@@ -9,3 +9,7 @@ Meu nome é Nicolly Damas
 
 ### Você pode entrar em contato comigo 📫
 nicolly.damas@escola.pr.gov.br
+
+
+
+![](https://media.tenor.com/qosneYa0MLQAAAAC/spider-man.gif)
